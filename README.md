@@ -1,0 +1,5 @@
+- 💗 Hi, I’m @jestpurr
+- 👀 I really like nintendo, guinea pigs, food, and art!
+- 🌱 I'm a student learning to code, bit by bit!
+- 💭 she/her/any
+- 🏳️‍🌈 nby woman, lesbian, 20 yrs old :)
