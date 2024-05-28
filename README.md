@@ -1,4 +1,4 @@
-- 💗 Hi, I’m @jestpurr
+- 💗 Hi, I’m pancake
 - 👀 I really like nintendo, guinea pigs, food, and art!
 - 🌱 I'm a student learning to code, bit by bit!
 - 💭 she/her/any
