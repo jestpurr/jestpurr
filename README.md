@@ -1,5 +1,5 @@
-- 💗 Hi, I’m pancake
+- 💗 Hi, I’m flower
 - 👀 I really like nintendo, guinea pigs, food, and art!
-- 🌱 I'm a student learning to code, bit by bit!
+- 🌱 I'm a student who's learning what she can
 - 💭 she/her/any
-- 🏳️‍🌈 nby woman, lesbian, 20 yrs old :)
+- 🏳️‍🌈 nby woman, lesbian, 21 yrs old :)
